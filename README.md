@@ -4,7 +4,7 @@
 🙏 Namashkar dosto! 
 
 
-💻🔧 Software Engineer 🔧💻
+💖 Software Engineer  💻
 
 Over 1 year of experience
 
