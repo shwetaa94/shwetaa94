@@ -1,7 +1,7 @@
 
 
 # 💫 About Me:
-👋 Namashkar dosto! 
+🙏 Namashkar dosto! 
 
 
 💻🔧 Software Engineer 🔧💻
