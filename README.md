@@ -31,6 +31,6 @@ Over 1 year of experience
 ![](https://github-profile-trophy.vercel.app/?username=shwetaa94&theme=onedark&no-frame=false&no-bg=false&margin-w=4)
 
 ---
-[![](https://visitcount.itsvg.in/api?id=shwetaa94&icon=0&color=4)](https://visitcount.itsvg.in)
+[![](https://visitcount.itsvg.in/api?id=shwetaa94&icon=8&color=1)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
